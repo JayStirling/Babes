@@ -1,10 +1,9 @@
 B3 Booklist 2024
- 
 
 Jan
 
-We Begin At The End                        
-Chris Whitaker​
+We Begin at the End
+Chris Whitaker
 
 Feb         
 
